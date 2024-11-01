@@ -6,7 +6,7 @@
   
 - 💞️ I’m looking to collaborate on either of those.
   
-- 📫 How to reach me per my mail lippektim338@gmail.com or my instagram @timmiderhobbygamer
+- 📫 You can reach me per my mail lippektim338@gmail.com or my instagram @timmiderhobbygamer
 
 <!---
 TidaliCreatives/TidaliCreatives is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
