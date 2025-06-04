@@ -2,7 +2,7 @@
   
 - 👀 I’m interested in Game Development, aswell as Music- and Movie Production.
   
-- 🌱 I’m currently learning to make games in Unity using C# and Music in FL Studio.
+- 🌱 I’m currently on my journey of creating games in Unity using C# and Music in FL Studio.
   
 - 💞️ I’m looking to collaborate on either of those.
   
