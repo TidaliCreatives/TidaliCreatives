@@ -6,7 +6,7 @@
   
 - 💞️ I’m looking to collaborate on either of those.
   
-- 📫 You can reach me per my mail tim.lippek@gmx.de
+- 📫 You can reach me per my mail tidali.creatives@outlook.com
 
 <!---
 TidaliCreatives/TidaliCreatives is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
